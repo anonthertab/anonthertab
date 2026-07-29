@@ -1,7 +1,6 @@
 # **anothertab**
 ## **Anon / Tab / Tabby**
   * i normally block people if they are bothering me or asking way too many questions that doesn't line up with my interests, it's rare though.
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=anothertab&label=Profile%20views&color=0e75b6&style=flat" alt="anothertab" /> </p>
 
    Feel free to interact with me, i don't bite! i love talking to people with similar interest. please i love meeting new people i just need a moment to collect myself and figure out how to reciprocate in a conversation ;;... w2i! i'm usually just off tab or drawing, i'll miss some messages..
 
