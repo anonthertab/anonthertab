@@ -13,6 +13,6 @@
 * Zenless Zone Zero.
 * Genshin Impact.
 
-###DNI
+### DNI
 * anyone under 17.
 * err anything under; homophobia, transphobia, zoophiles, pdophiles etc etc.. you can fill in the rest. dont interact with me.
