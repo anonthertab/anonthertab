@@ -1,16 +1,18 @@
-## Hi there 👋
+# anothertab
+## Anon / Tab / Tabby
+  * i normally block people if they are bothering me or asking way too many questions that doesn't line up with my interests, it's rare though.
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=anothertab&label=Profile%20views&color=0e75b6&style=flat" alt="anothertab" /> </p>
 
-<!--
-**anothertab/anothertab** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  Feel free to interact with me, i don't bite! i love talking to people with similar interest. please i love meeting new people i just need a moment to collect myself and figure out how to reciprocate in a conversation ;;...
 
-Here are some ideas to get you started:
+  I draw, usually doing work though.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Interests
+  *I am not in the fandoms listed here, I am just a bystander enjoying the game*
+* Wuthering Waves.
+* Zenless Zone Zero.
+* Genshin Impact.
+
+###DNI
+* anyone under 17.
+* err anything under; homophobia, transphobia, zoophiles, pdophiles etc etc.. you can fill in the rest. dont interact with me.
