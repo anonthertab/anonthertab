@@ -1,15 +1,15 @@
 # **anothertab**
-## **Anon / Tab**
-* i normally block people if they are bothering me or asking way too many questions that doesn't line up with my interests, it's rare though.
 
 ## **Pony Town stuff**
 
+* I don't roleplay!! i'm horrendous in it, i can be in character for people i know, it's embarrassing to roleplay with people i dont know :sob:
 * i want to meet new people but i feel a little self conscious for cosplaying dottore lol, i figured some people just aren't a fan of him.
 * int or just sit with me if you want company! i usually sit alone because i dont know how to talk to people
 * w2i!! sometimes i will offtab doing something else..
 * usually in the 18+ servers in the hoyoverse location.
 * i'm normally always in a Dottore skin. sometimes  Alhaithan or Columbina..
 * something something.. please talk to me if you just want to get to know me 👉👈,, on my knees /j
+  * i normally block people if they are bothering me or asking way too many questions that doesn't line up with my interests, it's rare though.
 
 ## **Interests**
   *I am not in the fandoms listed here, I am just a bystander enjoying the game*
