@@ -1,5 +1,7 @@
 <div align="center">
 
+[sign my ata!](https://anothertab.atabook.org/)
+
 # anothertab
 
 pfp art; cocoheadz_ on X
@@ -56,7 +58,5 @@ anything under; homophobia, transphobia, zoophiles, pdophiles etc etc.. you can 
 
 
 <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjg0ZHkydm5vbGxwMmo1bGpka2ptaGJjcnMyNWQzNHM4cWp4cHZ4YyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/nLJSmjlo1a5LjEeu8f/giphy.gif" width="500">
-
-[sign my ata!](https://anothertab.atabook.org/)
 
 </div>
