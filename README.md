@@ -23,11 +23,7 @@ w2i!! sometimes i will offtab doing something else..
 
 •
 
-usually in the 18+ servers in the hoyoverse location.
-
-•
-
-i'm normally always in a Dottore skin. sometimes  Alhaithan or Columbina..
+usually in the 18+ servers.
 
 •
 
