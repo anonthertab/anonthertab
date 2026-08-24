@@ -37,22 +37,11 @@ i got some unresolved issues just a heads up, all stems from bullying, so if i a
 
 *i normally block people if they are bothering me or asking way too many questions that doesn't line up with my interests, it's rare though.*
 
-## **Interests**
-*I am not in the fandoms listed here, I am just a bystander enjoying the game*
-
-Wuthering Waves.
-•
-Zenless Zone Zero.
-•
-Genshin Impact.
 
 ## **DNI**
 anyone under 17.
 
 anything under; homophobia, transphobia, zoophiles, pdophiles etc etc.. you can fill in the rest. dont interact with me.
 •
-
-
-<img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjg0ZHkydm5vbGxwMmo1bGpka2ptaGJjcnMyNWQzNHM4cWp4cHZ4YyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/nLJSmjlo1a5LjEeu8f/giphy.gif" width="500">
 
 </div>
