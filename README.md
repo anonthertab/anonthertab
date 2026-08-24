@@ -4,8 +4,6 @@
 
 # anothertab
 
-pfp art; cocoheadz_ on X
-
 <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExeTVqdnUydzNzbHZwdGxmb21xaTc0cTd2YjBxcXY0N2hsZzYxaGdnMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/GFloE3FO6942ONLMMl/giphy.gif" width="300">
 
 ## **Pony Town stuff**
