@@ -35,9 +35,9 @@ Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) �
 ## **dni**
 anyone under 17.
 
-anything under; homophobia, transphobia, zoophiles, pdophiles etc etc.. you can fill in the rest. dont interact with me.
-
 •
+
+anything under; homophobia, transphobia, zoophiles, pdophiles etc etc.. you can fill in the rest. dont interact with me.
 
 <img src="https://media1.tenor.com/m/F3MYSltnjjQAAAAC/enjin-gachiakuta.gif" width="700">
 
