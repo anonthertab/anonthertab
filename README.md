@@ -2,7 +2,7 @@
 
 [sign my ata!](https://anothertab.atabook.org/)
 
-# anothertab
+# anonthertab
 
 <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExenZzb2pxYmlqZ2VjZTV2dGdpM3Uzd3QzbThmY242dGp0OGl6dTlvdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/TDyMlYrI0sFmK5zSdR/giphy.gif" width="300">
 
