@@ -21,11 +21,7 @@ w2i!! sometimes i will offtab doing something else..
 
 •
 
-something something.. please talk to me if you just want to get to know me 👉👈,, on my knees /j
-
-•
-
-i got some unresolved issues just a heads up, all stems from bullying, so if i act alittle quiet dont fret, it'll pass 🙏
+i got some unresolved issues just a heads up, all stems from bullying, so if i act alittle quiet dont fret.
 
 •
 
