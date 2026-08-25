@@ -8,7 +8,7 @@
 
 ## **ponytown stuff**
 
-to start, i take things too literal especially from strangers, so just, overlook that tyty
+only on ss2. ss1 and 18+ are overwhelming lol
 
 •
 
