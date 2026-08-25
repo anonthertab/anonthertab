@@ -4,9 +4,9 @@
 
 # anothertab
 
-<img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExenZzb2pxYmlqZ2VjZTV2dGdpM3Uzd3QzbThmY242dGp0OGl6dTlvdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/TDyMlYrI0sFmK5zSdR/giphy.gif" width="700">
+<img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExenZzb2pxYmlqZ2VjZTV2dGdpM3Uzd3QzbThmY242dGp0OGl6dTlvdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/TDyMlYrI0sFmK5zSdR/giphy.gif" width="300">
 
-## **Pony Town stuff**
+## **ponytown stuff**
 
 to start, i take things too literal especially from strangers, so just, overlook that tyty
 
@@ -21,17 +21,26 @@ w2i!! sometimes i will offtab doing something else..
 
 •
 
-i got some unresolved issues just a heads up, all stems from bullying, so if i act alittle quiet dont fret.
+i got some unresolved issues just a heads up, if i act alittle quiet dont fret. Though, i do not like ambiguous responses, it makes me overthink.
 
 •
 
 *i normally block people if they are bothering me or asking way too many questions that doesn't line up with my interests, it's rare though.*
 
+•
 
-## **DNI**
+<img src="https://media1.tenor.com/m/DSlslUNiMW8AAAAC/gachiakuta-enjin-eating.gif" width="300">
+
+## **current interest**
+Gachiakuta (Anime/Manga) • Witch Hat Atelier (Anime/haven't read the manga) • Hoyoverse(GI/ZZZ) • Wuthering Waves 
+
+## **dni**
 anyone under 17.
 
 anything under; homophobia, transphobia, zoophiles, pdophiles etc etc.. you can fill in the rest. dont interact with me.
+
 •
+
+<img src="https://media1.tenor.com/m/F3MYSltnjjQAAAAC/enjin-gachiakuta.gif" width="700">
 
 </div>
