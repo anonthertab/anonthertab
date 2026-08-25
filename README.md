@@ -21,10 +21,6 @@ w2i!! sometimes i will offtab doing something else..
 
 •
 
-usually in the 18+ servers.
-
-•
-
 something something.. please talk to me if you just want to get to know me 👉👈,, on my knees /j
 
 •
