@@ -42,6 +42,10 @@ anyone under 17.
 
 anything under; homophobia, transphobia, zoophiles, pdophiles etc etc.. you can fill in the rest. dont interact with me.
 
+•
+
+i don't care who you ship as long it is not anything listed above this text, and you don't force it onto me without warning.
+
 <img src="https://media1.tenor.com/m/F3MYSltnjjQAAAAC/enjin-gachiakuta.gif" width="700">
 
 </div>
