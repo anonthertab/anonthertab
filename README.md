@@ -4,7 +4,7 @@
 
 # anothertab
 
-<img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExeTVqdnUydzNzbHZwdGxmb21xaTc0cTd2YjBxcXY0N2hsZzYxaGdnMSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/GFloE3FO6942ONLMMl/giphy.gif" width="300">
+<img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExenZzb2pxYmlqZ2VjZTV2dGdpM3Uzd3QzbThmY242dGp0OGl6dTlvdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/TDyMlYrI0sFmK5zSdR/giphy.gif" width="700">
 
 ## **Pony Town stuff**
 
