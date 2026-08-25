@@ -12,7 +12,7 @@ to start, i take things too literal especially from strangers, so just, overlook
 
 •
 
-I don't roleplay!! i'm horrendous in it, i can be in character for people i know, it's embarrassing to roleplay with people i dont know :sob: i want to meet new people but i feel a little self conscious for cosplaying dottore lol, i figured some people just aren't a fan of him.
+I don't roleplay!! i'm horrendous in it, i can be in character for people i know, it's embarrassing to roleplay with people i dont.
 
 •
 
