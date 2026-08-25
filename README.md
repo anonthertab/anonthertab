@@ -33,7 +33,7 @@ Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) �
 <img src="https://media1.tenor.com/m/DSlslUNiMW8AAAAC/gachiakuta-enjin-eating.gif" width="300">
 
 ## **kin**
-Follo Tunito • Amo Empool • Alhaitham
+Follo Tunito • Alhaitham
 
 ## **dni**
 anyone under 17.
