@@ -27,6 +27,10 @@ i got some unresolved issues just a heads up, if i act alittle quiet dont fret. 
 
 *i normally block people if they are bothering me or asking way too many questions that doesn't line up with my interests, it's rare though.*
 
+•
+
+something,, something,, don't ask for my discord unless we are close in PT, made a few mistakes letting people in woop...
+
 ## **interest**
 Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) • The Apothecary Diaries(Anime) • Voltron:LD(Show) • Transformers Prime(Show) • The Pitt(Show) • To Be HeroX(Donghua) • Heaven Official's Blessings(Donghua) • Grandmaster of Demonic Cultivation(Donghua) • Bungo Stray Dogs(Anime) • RWBY(Show) • Attack On Titan(Anime) • One Punch Man(Anime) • Avatar:TLA(Show) • Legend of Korra(Show) • Sakamoto Days(Anime) • Obey Me!(Game/not playing) • Iron Lung(Movie) • Project Hail Mary(Movie) • FNAF(Game/Movie)
 
