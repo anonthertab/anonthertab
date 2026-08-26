@@ -31,11 +31,11 @@ i got some unresolved issues just a heads up, if i act alittle quiet dont fret. 
 
 something,, something,, don't ask for my discord unless we are close in PT, made a few mistakes letting people in woop...
 
-## **interest**
-Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) • The Apothecary Diaries(Anime) • Voltron:LD(Show) • Transformers Prime(Show) • The Pitt(Show) • To Be HeroX(Donghua) • Heaven Official's Blessings(Donghua) • Grandmaster of Demonic Cultivation(Donghua) • Bungo Stray Dogs(Anime) • RWBY(Show) • Attack On Titan(Anime) • One Punch Man(Anime) • Avatar:TLA(Show) • Legend of Korra(Show) • Sakamoto Days(Anime) • Obey Me!(Game/not playing) • Iron Lung(Movie) • Project Hail Mary(Movie) • FNAF(Game/Movie)
-
 ### **ponytown skin/cos i'm usually in**
 Il Dottore • Enjin • Anon(sona)
+
+## **interest**
+Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) • The Apothecary Diaries(Anime) • Voltron:LD(Show) • Transformers Prime(Show) • The Pitt(Show) • To Be HeroX(Donghua) • Heaven Official's Blessings(Donghua) • Grandmaster of Demonic Cultivation(Donghua) • Bungo Stray Dogs(Anime) • RWBY(Show) • Attack On Titan(Anime) • One Punch Man(Anime) • Avatar:TLA(Show) • Legend of Korra(Show) • Sakamoto Days(Anime) • Obey Me!(Game/not playing) • Iron Lung(Movie) • Project Hail Mary(Movie) • FNAF(Game/Movie)
 
 <img src="https://media1.tenor.com/m/DSlslUNiMW8AAAAC/gachiakuta-enjin-eating.gif" width="300">
 
