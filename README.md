@@ -8,7 +8,7 @@
 
 ## **ponytown stuff**
 
-only on ss2. ss1 and 18+ are overwhelming lol
+on ss2. ss1 and 18+ are overwhelming with way too many peeps lol
 
 •
 
