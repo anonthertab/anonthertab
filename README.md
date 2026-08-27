@@ -6,6 +6,18 @@
 
 <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExenZzb2pxYmlqZ2VjZTV2dGdpM3Uzd3QzbThmY242dGp0OGl6dTlvdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/TDyMlYrI0sFmK5zSdR/giphy.gif" width="300">
 
+
+## **dni**
+anyone under 17. 16 at the minimum. anything below that i doubt i'll have any interests that'll align with yours.
+
+•
+
+anything under; homophobia, transphobia, zoophiles, pdophiles etc etc.. you can fill in the rest. dont interact with me.
+
+•
+
+i don't care who you ship as long it is not anything listed above this text, and you don't force it onto me without warning.
+
 ## **ponytown stuff**
 
 on ss2. ss1 and 18+ are overwhelming with way too many peeps lol
@@ -42,16 +54,6 @@ Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) �
 ## **kin**
 Follo Tunito • Alhaitham
 
-## **dni**
-anyone under 17. 16 at the minimum. anything below that i doubt i'll have any interests that'll align with yours.
-
-•
-
-anything under; homophobia, transphobia, zoophiles, pdophiles etc etc.. you can fill in the rest. dont interact with me.
-
-•
-
-i don't care who you ship as long it is not anything listed above this text, and you don't force it onto me without warning.
 
 <img src="https://media1.tenor.com/m/F3MYSltnjjQAAAAC/enjin-gachiakuta.gif" width="700">
 
