@@ -43,7 +43,7 @@ Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) �
 Follo Tunito • Alhaitham
 
 ## **dni**
-anyone under 17.
+anyone under 17. 16 at the minimum. anything below that i doubt i'll have any interests that'll align with yours.
 
 •
 
