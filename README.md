@@ -2,6 +2,8 @@
 
 [sign my ata!](https://anothertab.atabook.org/)
 
+<img src="https://media1.tenor.com/m/F3MYSltnjjQAAAAC/enjin-gachiakuta.gif" width="700">
+
 ## **dni**
 anyone under 17. 16 at the minimum. anything below that i doubt i'll have any interests that'll align with yours.
 
@@ -54,7 +56,5 @@ Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) �
 ## **kin**
 Follo Tunito • Alhaitham
 
-
-<img src="https://media1.tenor.com/m/F3MYSltnjjQAAAAC/enjin-gachiakuta.gif" width="700">
 
 </div>
