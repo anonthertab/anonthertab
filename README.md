@@ -1,6 +1,6 @@
 <div align="center">
 
-[sign my ata!](https://anothertab.atabook.org/)
+[sign my ata!](https://anonthertab.atabook.org/)
 
 <img src="https://media1.tenor.com/m/F3MYSltnjjQAAAAC/enjin-gachiakuta.gif" width="700">
 
