@@ -45,8 +45,8 @@ i got some unresolved issues just a heads up, if i act alittle quiet dont fret. 
 
 something,, something,, don't ask for my discord unless we are close in PT, made a few mistakes letting people in woop...
 
-### **ponytown skin/cos i'm usually in**
-Il Dottore • Enjin • Anon(sona)
+## **ponytown skin/cos i'm usually in**
+Il Dottore • Enjin • Anon(sona) • Adam Taurus
 
 <img src="https://media1.tenor.com/m/DSlslUNiMW8AAAAC/gachiakuta-enjin-eating.gif" width="300">
 
