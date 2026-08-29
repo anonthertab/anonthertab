@@ -49,7 +49,11 @@ something,, something,, don't ask for my discord unless we are close in PT, made
 Il Dottore • Enjin • Anon(sona)
 
 ## **interest**
-Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) • The Apothecary Diaries(Anime) • Voltron:LD(Show) • Transformers Prime(Show) • The Pitt(Show) • To Be HeroX(Donghua) • Heaven Official's Blessings(Donghua) • Grandmaster of Demonic Cultivation(Donghua) • Bungo Stray Dogs(Anime) • RWBY(Show) • Attack On Titan(Anime) • One Punch Man(Anime) • Avatar:TLA(Show) • Legend of Korra(Show) • Sakamoto Days(Anime) • Obey Me!(Game/not playing) • Iron Lung(Movie) • Project Hail Mary(Movie) • FNAF(Game/Movie)
+Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) • The Apothecary Diaries(Anime) • Voltron:LD(Show) • Transformers Prime(Show) • The Pitt(Show) • To Be HeroX(Donghua) • Heaven Official's Blessings(Donghua) • Grandmaster of Demonic Cultivation(Donghua) • Bungo Stray Dogs(Anime) • RWBY(Show) • Attack On Titan(Anime) • One Punch Man(Anime) • Avatar:TLA(Show) • Legend of Korra(Show) • Sakamoto Days(Anime) • Iron Lung(Movie) • Project Hail Mary(Movie) • FNAF(Movie)
+
+## **game interest**
+
+Wuthering Waves(obsessed) • Zenless Zone Zero(obsessed) • Genshin Impact(obsessed) • Team Fortress 2(hiatus) • Obey Me!(dropped) • FNAF 1/2/3/4/5 • Detroit: Become Human • Webfishing • Dispatch
 
 <img src="https://media1.tenor.com/m/DSlslUNiMW8AAAAC/gachiakuta-enjin-eating.gif" width="300">
 
