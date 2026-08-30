@@ -43,7 +43,6 @@ I don't roleplay!! i'm horrendous in it, i can be in character for people i know
 •
 
 int or just sit with me if you want company! i usually sit alone because i dont know how to talk to people
-w2i!! sometimes i will offtab doing something else..
 
 •
 
