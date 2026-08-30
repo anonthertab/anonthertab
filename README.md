@@ -9,7 +9,7 @@ i'm an adult(20+)
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
-i unironically ship these two, lol
+i unironically ship these two, and if anyone's curious adam is 100% the bottom lol.
 
 <img src="https://i.imgur.com/IKCwvsX.gif" width="507"> <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExdno4Zm1ybWdqYTJ2am9xbHhoaXE3NDZ1ZzR4NzUzNjdqdGY1ZG43ZCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/MkOzRbJvSZEM2ENlcX/giphy.gif" width="300">
 
