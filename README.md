@@ -2,7 +2,11 @@
 
 [sign my ata!](https://anonthertab.atabook.org/)
 
-<img src="https://media1.tenor.com/m/F3MYSltnjjQAAAAC/enjin-gachiakuta.gif" width="700">
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+
+<img src="https://i.imgur.com/IKCwvsX.gif" width="700">
+
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 ## **dni**
 anyone under 17. 16 at the minimum. anything below that i doubt i'll have any interests that'll align with yours.
@@ -15,10 +19,11 @@ anything under; homophobia, transphobia, zoophiles, pdophiles etc etc.. you can 
 
 i don't care who you ship as long it is not anything listed above this text, and you don't force it onto me without warning.
 
-# anonthertab
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
-<img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExenZzb2pxYmlqZ2VjZTV2dGdpM3Uzd3QzbThmY242dGp0OGl6dTlvdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/TDyMlYrI0sFmK5zSdR/giphy.gif" width="300">
+<img src="https://i.imgur.com/TOIFMpI.gif" width="700">
 
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 ## **ponytown stuff**
 
@@ -48,7 +53,11 @@ something,, something,, don't ask for my discord unless we are close in PT, made
 ## **ponytown skin/cos i'm usually in**
 Il Dottore • Enjin • Anon(sona) • Adam Taurus
 
-<img src="https://media1.tenor.com/m/DSlslUNiMW8AAAAC/gachiakuta-enjin-eating.gif" width="300">
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+
+<img src="https://i.imgur.com/QzruGP0.gif" width="700">
+
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 ## **interest**
 Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) • The Apothecary Diaries(Anime) • Voltron:LD(Show) • Transformers Prime(Show) • The Pitt(Show) • To Be HeroX(Donghua) • Heaven Official's Blessings(Donghua) • Grandmaster of Demonic Cultivation(Donghua) • Bungo Stray Dogs(Anime) • RWBY(Show) • Attack On Titan(Anime) • One Punch Man(Anime) • Avatar:TLA(Show/Movie) • Legend of Korra(Show) • Sakamoto Days(Anime) • Iron Lung(Movie) • Project Hail Mary(Movie) • FNAF(Movie)
@@ -60,5 +69,10 @@ Wuthering Waves(obsessed) • Zenless Zone Zero(obsessed) • Genshin Impact(obs
 ## **characters i relate** *to a degree.*
 Follo Tunito • Alhaitham • Hua Cheng • Lan Wangji • Adam Taurus • Qifrey
 
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+
+<img src="https://media1.tenor.com/m/CjbKqJTDhvAAAAAd/dottore-the-doctor.gif" width="700">
+
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 </div>
