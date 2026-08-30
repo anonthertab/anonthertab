@@ -3,6 +3,7 @@
 [sign my ata!](https://anonthertab.atabook.org/)
 
 ## **ⒶⓃⓄⓃⓉⒽⒺⓇ-ⓉⒶⒷ**
+i'm an adult(20+) • aro/ace
 𝐜+𝐡 𝐚𝐥𝐰𝐚𝐲𝐬 / 𝐧𝐨 𝐫𝐨𝐥𝐞𝐩𝐥𝐚𝐲𝐬 / 𝐰𝟐𝐢𝐧𝐭! 𝐢'𝐦 𝐚𝐥𝐦𝐨𝐬𝐭 𝐚𝐥𝐰𝐚𝐲𝐬 𝐚𝐟𝐤!
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
