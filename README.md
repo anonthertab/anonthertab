@@ -21,7 +21,7 @@ i don't care who you ship as long it is not anything listed above this text, and
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
-<img src="https://i.imgur.com/TOIFMpI.gif" width="700">
+<img src="https://i.imgur.com/TOIFMpI.gif" width="500">
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
@@ -55,7 +55,7 @@ Il Dottore • Enjin • Anon(sona) • Adam Taurus
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
-<img src="https://i.imgur.com/QzruGP0.gif" width="700">
+<img src="https://i.imgur.com/QzruGP0.gif" width="500">
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
