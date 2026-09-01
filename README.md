@@ -72,7 +72,7 @@ Il Dottore • Enjin • Anon(sona) • Adam Taurus
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 ## **interest**
-Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) • The Apothecary Diaries(Anime) • Voltron:LD(Show) • Transformers Prime(Show) • The Pitt(Show) • To Be HeroX(Donghua) • Heaven Official's Blessings(Donghua) • Grandmaster of Demonic Cultivation(Donghua) • Bungo Stray Dogs(Anime) • RWBY(Show) • Attack On Titan(Anime) • One Punch Man(Anime) • Avatar:TLA(Show/Movie) • Legend of Korra(Show) • Sakamoto Days(Anime) • Iron Lung(Movie) • Project Hail Mary(Movie) • FNAF(Movie) • All Saints Street(Web-Series)
+Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) • The Apothecary Diaries(Anime) • Voltron:LD(Show) • Transformers Prime(Show) • The Pitt(Show) • To Be HeroX(Donghua) • Heaven Official's Blessings(Donghua) • Grandmaster of Demonic Cultivation(Donghua) • Bungo Stray Dogs(Anime) • RWBY(Show) • Attack On Titan(Anime) • One Punch Man(Anime) • Avatar:TLA(Show/Movie) • Legend of Korra(Show) • Sakamoto Days(Anime) • Iron Lung(Movie) • Project Hail Mary(Movie) • FNAF(Movie) • All Saints Street(Donghua)
 
 ## **game interest**
 
