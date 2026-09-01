@@ -40,7 +40,7 @@ i don't care who you ship as long it is not anything listed above this text, and
 
 ## **ponytown stuff**
 
-on ss2 and 18+
+usually on 18+
 
 •
 
