@@ -44,11 +44,15 @@ usually on 18+
 
 •
 
+*i normally block people if they are bothering me or asking way too many questions that doesn't line up with my interests, it's rare though.*
+
+•
+
 I don't roleplay!! i'm horrendous in it, i can be in character for people i know, it's embarrassing to roleplay with people i dont.
 
 •
 
-int or just sit with me if you want company! i usually sit alone because i dont know how to talk to people
+pelase int or just sit with me if you want company! i usually sit alone because i dont know how to talk to people. by chance i am not sitting alone, still dont be shy! i dont bite, probably.
 
 •
 
@@ -56,7 +60,7 @@ i got some unresolved issues just a heads up, if i act alittle quiet dont fret. 
 
 •
 
-*i normally block people if they are bothering me or asking way too many questions that doesn't line up with my interests, it's rare though.*
+feel free to friend me, idm! most times i will accept friend requests when we are in the same fandom.
 
 •
 
