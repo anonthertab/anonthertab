@@ -52,7 +52,7 @@ I don't roleplay!! i'm horrendous in it, i can be in character for people i know
 
 •
 
-pelase int or just sit with me if you want company! i usually sit alone because i dont know how to talk to people. by chance i am not sitting alone, still dont be shy! i dont bite, probably.
+please freely int or just sit with me if you want company! i usually sit alone because i dont know how to talk to people. by chance i am not sitting alone, still dont be shy! i dont bite, probably.
 
 •
 
