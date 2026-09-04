@@ -12,7 +12,7 @@
 
 i'm an adult. (20+)
 
-i like doodling peoples oc on their strawpage teehee.. if you're timid to approach you can sign my ata!
+i like doodling peoples oc on their strawpage teehee..
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
