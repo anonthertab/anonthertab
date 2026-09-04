@@ -12,6 +12,8 @@
 
 with that corny shit out of the way, i'm an adult. (20+)
 
+i like doodling peoples oc on their strawpage teehee..
+
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 i unironically ship these two, lol.
