@@ -44,11 +44,11 @@ usually on 18+
 
 •
 
-*i normally block people if they are bothering me or asking way too many questions that doesn't line up with my interests, it's rare though.*
+i block freely, any form of disrespect. At most i will block chat messages!
 
 •
 
-I don't roleplay!! i'm horrendous in it, i can be in character for people i know, it's embarrassing to roleplay with people i dont.
+i do not do roleplays. unless I know you well enough i can be in character for the funnies. otherwise dont engage a roleplay with me.
 
 •
 
