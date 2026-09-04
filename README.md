@@ -10,9 +10,9 @@
 
 'anonthertab' is one of few alias i go by to detach from my main alias. few will know my main muahaha
 
-with that corny shit out of the way, i'm an adult. (20+)
+i'm an adult. (20+)
 
-i like doodling peoples oc on their strawpage teehee..
+i like doodling peoples oc on their strawpage teehee.. if you're timid to approach you can sign my ata!
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
