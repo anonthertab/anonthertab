@@ -70,7 +70,7 @@ feel free to friend me, idm! most times i will accept friend requests when we ar
 something,, something,, don't ask for my discord unless we are close in PT, made a few mistakes letting people in woop...
 
 ## **ponytown skin/cos i'm usually in**
-Il Dottore • Il Capitano • Enjin • Anon(sona) • Adam Taurus
+Il Dottore • Il Capitano • Enjin • Anon(sona) • Adam Taurus • Starlight Billy
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
