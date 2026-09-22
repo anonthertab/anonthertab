@@ -83,7 +83,7 @@ Gachiakuta (Anime/Manga) • Witch Hat Atelier(Anime/still reading the manga) �
 
 ## **game interest**
 
-Wuthering Waves(obsessed) • Zenless Zone Zero(obsessed) • Genshin Impact(obsessed) • Team Fortress 2(hiatus) • Obey Me!(dropped) • FNAF 1/2/3/4/5 • Detroit: Become Human • Webfishing • Dispatch • Honkai: Starrail(im larping honestly..i played for my friend </3) • Ace Attorney(I have yet to finish the game, BUT I REMEMBER SOME STUFF...trust...) • 
+Tetris Effect: Connected(OBSESSED.. but not alot of people playing </3) • Tetr,io(used to play on there,, but the skill cap got raised and i suck) • Wuthering Waves(obsessed) • Zenless Zone Zero(obsessed) • Genshin Impact(obsessed) • Team Fortress 2(hiatus) • Obey Me!(dropped) • FNAF 1/2/3/4/5 • Detroit: Become Human • Webfishing • Dispatch • Honkai: Starrail(im larping honestly..i played for my friend </3) • Ace Attorney(I have yet to finish the game, BUT I REMEMBER SOME STUFF...trust...) • 
 
 ## **characters i relate** *to a degree.*
 Follo Tunito • Alhaitham • Hua Cheng • Lan Wangji • Adam Taurus • Qifrey
