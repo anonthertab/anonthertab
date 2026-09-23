@@ -43,6 +43,10 @@ i don't care who you ship as long it is not anything listed above this text, and
 
 ## **ponytown stuff**
 
+feel free to take inspo, not need to ask me honestly - just dont downright copy. even then i cant stop you lol
+
+•
+
 usually on 18+
 
 •
