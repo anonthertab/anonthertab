@@ -10,7 +10,7 @@
 
 'anonthertab' is one of few alias i go by to detach from my main alias. few will know my main muahaha
 
-i'm an adult. (21)
+i'm an adult. (21) and a digital artist..
 
 i like doodling peoples oc on their strawpage teehee..
 
