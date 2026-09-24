@@ -10,7 +10,7 @@
 
 'anonthertab' is one of few alias i go by to detach from my main alias. few will know my main muahaha
 
-i'm an adult. (20+)
+i'm an adult. (21)
 
 i like doodling peoples oc on their strawpage teehee..
 
@@ -72,6 +72,10 @@ feel free to friend me, idm! most times i will accept friend requests when we ar
 •
 
 something,, something,, don't ask for my discord unless we are close in PT, made a few mistakes letting people in woop...
+
+•
+
+yumeshipper/selfshippers are welcomed, just dont roleplay or be overtly weird,, 
 
 ## **ponytown skin/cos i'm usually in**
 Il Dottore • Il Capitano • Enjin • Anon(sona) • Adam Taurus • Starlight Billy
