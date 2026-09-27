@@ -37,6 +37,10 @@ anything under; homophobia, transphobia, zoophiles, pdophiles etc etc.. you can 
 
 i don't care who you ship as long it is not anything listed above this text, and you don't force it onto me without warning.
 
+•
+
+if you're pro AI generation. literally nothing good comes out of people like that.
+
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 <img src="https://i.imgur.com/TOIFMpI.gif" width="500">
