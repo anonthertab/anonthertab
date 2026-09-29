@@ -35,7 +35,7 @@ anything under; homophobia, transphobia, zoophiles, pedophiles etc etc.. you can
 
 •
 
-i don't care who you ship as long it is not pedophilic. above this text, and you don't force it onto me without warning.
+i don't care who you ship as long it is not pedophilic incestious, yada yada. don't force a ship onto me without warning.
 
 •
 
