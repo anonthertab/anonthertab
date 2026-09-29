@@ -31,11 +31,11 @@ anyone under 18. 17 at the minimum. anything below that i doubt i'll have any in
 
 •
 
-anything under; homophobia, transphobia, zoophiles, pdophiles etc etc.. you can fill in the rest. dont interact with me.
+anything under; homophobia, transphobia, zoophiles, pedophiles etc etc.. you can fill in the rest. dont interact with me.
 
 •
 
-i don't care who you ship as long it is not anything listed above this text, and you don't force it onto me without warning.
+i don't care who you ship as long it is not pedophilic. above this text, and you don't force it onto me without warning.
 
 •
 
