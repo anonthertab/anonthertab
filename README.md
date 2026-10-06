@@ -84,7 +84,7 @@ something,, something,, don't ask for my discord unless we are close in PT, made
 yumeshipper/selfshippers are welcomed, just dont roleplay or be overtly weird,, 
 
 ## **ponytown skin/cos i'm usually in**
-Il Dottore • Il Capitano • Enjin • Anon(sona) • Adam Taurus • Starlight Billy
+Il Dottore • GI OC • any RWBY characters • Enjin
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
