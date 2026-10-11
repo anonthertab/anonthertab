@@ -27,7 +27,7 @@ i unironically ship these two, lol.
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 ## **dni**
-anyone under 18. 17 at the minimum. anything below that i doubt i'll have any interests that'll align with yours.
+anyone under 18. Exceptions can be made, as long our interests in media or games align. Otherwise i prefer 20+ for conversations.
 
 •
 
