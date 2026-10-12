@@ -9,7 +9,9 @@
 ```
 [!atabook!](https://anonthertab.atabook.org/)
 
+
 ## **ⒶⓃⓄⓃⓉⒽⒺⓇ-ⓉⒶⒷ**
+
 ### 𝖈𝖆𝖑𝖑 𝖒𝖊 𝖙𝖆𝖇 𝖔𝖗 𝖆𝖓𝖔𝖓!
 ### 𝐜+𝐡 𝐚𝐥𝐰𝐚𝐲𝐬 / 𝐧𝐨 𝐫𝐨𝐥𝐞𝐩𝐥𝐚𝐲𝐬 / 𝐰𝟐𝐢𝐧𝐭! 𝐢'𝐦 𝐚𝐥𝐦𝐨𝐬𝐭 𝐚𝐥𝐰𝐚𝐲𝐬 𝐚𝐟𝐤!
 
@@ -22,6 +24,7 @@ i'm an adult. (21) and a digital artist..
 do not assume i know all the people i sit with, unless they are always beside me everyday or most days.. 
 
 i will still accidentally overlook pings from whispers,, promise im not ignoring you, the ping is so tiny ^^"
+
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
