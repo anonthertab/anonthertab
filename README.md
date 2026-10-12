@@ -90,9 +90,6 @@ something,, something,, don't ask for my discord unless we are close in PT, made
 
 yumeshipper/selfshippers are welcomed, just dont roleplay or be overtly weird,, 
 
-## **ponytown skin/cos i'm usually in**
-Il Dottore • GI OC • any RWBY characters • Enjin
-
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 <img src="https://i.imgur.com/QzruGP0.gif" width="500">
