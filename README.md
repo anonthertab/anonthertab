@@ -21,7 +21,7 @@
 
 i'm an adult. (21) and a digital artist..
 
-do not assume i know all the people i sit with, unless they are always beside me everyday or most days.. 
+do not assume i know all the people i sit with personally,, i prefer being in other peoples presence, less lonely that way
 
 i will still accidentally overlook pings from whispers,, promise im not ignoring you, the ping is so tiny ^^"
 
