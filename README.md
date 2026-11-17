@@ -24,9 +24,6 @@ do not assume i know all the people i sit with personally,, i prefer being in ot
 
 i will still accidentally overlook pings from whispers,, promise im not ignoring you, the ping is so tiny ^^"
 
-uhh uhh,, please dont compliment me, i hate it. One off compliments are fine, I get irritated when anyone constantly say nice things when i tell them to stop.
-
-
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 i unironically ship these two, lol.
