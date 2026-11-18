@@ -35,6 +35,11 @@ i unironically ship these two, lol.
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 ## **dni**
+
+roleplaying, i mean completely in character i usually dont respond well to roleplays.
+
+•
+
 anyone under 18. Exceptions can be made, as long our interests in media or games align. Otherwise i prefer 20+ for conversations.
 
 •
@@ -47,7 +52,7 @@ i don't care who you ship as long it is not pedophilic, or incestious, yada yada
 
 •
 
-if you're pro AI generation. literally nothing good comes out of people like that.
+if you're pro AI generation.
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
